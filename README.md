@@ -1,1 +1,1 @@
-# -uSamhitaKomandur-.github.io
+# SamhitaKomandur.github.io
